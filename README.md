@@ -1,0 +1,1 @@
+# montecarlo_similasyon_getiri_olas-l-k
